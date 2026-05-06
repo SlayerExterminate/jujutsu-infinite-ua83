@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with smart jujutsu infinite Scripts, the #1 Script. Includes god mode and invisibility for unbeatable
 
 
 
